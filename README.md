@@ -1,6 +1,6 @@
 **Anushka Gupta – Strategy & Marketing Portfolio**
 
-📞 +91 6375080729 | ✉️ [anushka.99250@gmail.com](mailto:anushka.99250@gmail.com) | [LinkedIn](#) | [GitHub](#)
+📞 +91 6375080729 | ✉️ [anushka.99250@gmail.com](mailto:anushka.99250@gmail.com) | **LinkedIn**- https://www.linkedin.com/in/anushkagupta-tech/ 
 
 ---
 
